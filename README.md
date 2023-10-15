@@ -1,1 +1,1 @@
-# benitecnologia.github.io
+# beniteach.github.io
